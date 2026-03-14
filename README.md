@@ -1,0 +1,1 @@
+# script_roblox_universall_yarik
